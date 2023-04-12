@@ -1,3 +1,3 @@
 # FNASS
 
-rottia khej khej
+rottia kjeh kjeh
